@@ -159,7 +159,7 @@ Abdullah Alhaider,
 <br />
 cs.alhaider@gmail.com
 <br />
-[Twitter](https://twitter.com/cs_alhaider)
+[X](https://x.com/cs4alhaider)
 
 
 
